@@ -33,26 +33,31 @@ Design thinking mindset
 - Design thinking in action
 
 Strategic Leadership Development Programme- Batch 4
+
 PROFILING: 
 Psychometric / Multi-rater instruments
 Interviews with stakeholders (supervisor) to understand  participant’s areas ofstrength and development
 Behavioral Event Interview with Participants
+
 EXPERIENTIAL LEARNING: 
 Transformational Business Impact Projects with ROI. 
 Internal Company Mentors Will be Assigned For Projects.
 Development Dossier (Learning Aids) and Business Simulations.
 8 Individual Coaching Sessions
+
 ADVANCED LEADERSHIP WORKSHOPS by IIMB ( 4+4 days):
 ​Workshop on Strategic Thinking & Business Acumen.
 Drive Strategic Innovation. 
 Capitalize On Digital Transformation.
 Understand and Lead Successful Change. 
 Split over 2 visits of 4 days each (June and November 2023). The second visit will also include the valedictory ceremony on the last day.
+
 LEADER CONNECT: 
 Sessions with CEOs Leaders from other industries/ companies.
 FINAL PRESENTATION AND VALEDICTORY:
 Business & leadership tranformation ( ROI and behavioral change)
 Valedictory session and certification at IIM Bangalore Campus on last day.
+
 
 Strategic Analysis for Competitive Advantage
 The key areas covered in this programme include the analytical, behavioural, and creative aspects of strategy formulation and implementation at the business unit level. Case will be used extensively to cover the following broad areas below:
